@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @txtandbts
+- 👀 I’m interested in kdramas, kpop and ff (fanfics)
+- 🌱 I’m currently learning how to fix myself
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me on snapchat
+- i love bts
+- i also love straykidz and txt
+- i am learning about a kpop group called ateez
+- go on giggl.app and add me 
+- the school blocked giggl for me
+
